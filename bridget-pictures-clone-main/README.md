@@ -1,1 +1,0 @@
-https://bridget.pictures/ clone
